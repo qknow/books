@@ -1,0 +1,4 @@
+# Copulation or Mating
+This is the penetration of an erect penis into the vagina.  It involves the male reproductive organ inserted into the female reproductive organ.  The back and forth movement of the male reproductive organ in the female reproductive organ brings excitement and at the peak of sexual excitement or climax sperms are produced and deposited into the vagina.
+
+During sexual intercourse, the sperm which is produced by the testes moves out of the epidermis (which stores sperms temporarily) through the vas deferens. During the movement, a milky fluid from the Prostate and the Cowper’s glands are added to the sperm which forms semen.  The semen moves through the urethra (long tube that runs through the centre of the penis). The semen is then deposited into the vagina through the penis. The releasing of the semen is known as ejaculation.
